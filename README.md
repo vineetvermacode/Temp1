@@ -1,1 +1,3 @@
 # Temp1
+
+https://cdn-images.prepp.in/public/image/SSC_CGL_2024_Tier_2_Paper_1_Question_Paper_with_Answer_Key_PDF_Jan_20_2025_1_72_b5b43ba2dce16776fc9568b25b0e3663.pdf
